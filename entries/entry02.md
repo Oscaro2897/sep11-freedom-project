@@ -1,5 +1,5 @@
 # Entry 2
-##### X/X/XX
+##### DECEMBER/12/22
 
 Text
 
